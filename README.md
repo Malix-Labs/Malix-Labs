@@ -1,1 +1,1 @@
-![Bannière](https://user-images.githubusercontent.com/76160668/184558150-613df236-81a9-47b3-93fe-b083a2a1289b.png)
+![Bannière Dimensions](https://user-images.githubusercontent.com/76160668/184558469-473a16a8-0a1a-4ea8-93bd-c1cfdf3294bc.png)
